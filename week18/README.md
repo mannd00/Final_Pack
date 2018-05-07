@@ -1,3 +1,3 @@
-# week18
+# Week 18
 
-Last day of Class!
+Last day of Class! Finals.
